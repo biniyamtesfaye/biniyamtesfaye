@@ -76,7 +76,7 @@
 I'm always open to interesting conversations, collaborations, and freelance opportunities.
 
 - 🐙 LinkedIn: [linkedin.com/in/binyam-tesfaye-55845223b](linkedin.com/in/binyam-tesfaye-55845223b)
-- 💌 Drop me a message anytime — I don't bite!
+- ☕ Drop me a message anytime 
 
 ---
 
